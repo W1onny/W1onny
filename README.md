@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @W1onny
+- 👀 I’m interested in programming and coding
+- 🌱 I’m currently learning Python
+- 📫 How to reach me discord - W1onny.#7821
